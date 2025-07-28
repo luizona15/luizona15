@@ -5,6 +5,7 @@
 ![](https://media.tenor.com/oD1FwzpmAqMAAAAi/zero-two-zerotwo.gif)
 ![](https://media.tenor.com/oD1FwzpmAqMAAAAi/zero-two-zerotwo.gif)
 
+![](https://media1.tenor.com/m/RmqS7PHT4-QAAAAC/zero-two-darling-and-the-franxx.gif)
 <!--
 **luizona15/luizona15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
